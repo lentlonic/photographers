@@ -10,4 +10,9 @@ The best photographers that we’ve chosen for list have taken their portraits a
 Steve McCurry is famous for his photo ‘Afghan girl,’ taken in a refugee camp in Peshawar, Pakistan. This photo was named the most recognized photo of National Geographic. His other less famous photos are really worth a look!
 
 ## 2. Lee Jeffries
-![Branching]
+![Branching](hrhd.jpg)
+
+His collection of black and white portraits of homeless people is unique and stunning. He depicts a glimpse of hope in the eyes of his subjects. Simply touching…
+
+## 3. Jimmy Nelsson
+![Branching](
