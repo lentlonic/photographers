@@ -20,4 +20,9 @@ His collection of black and white portraits of homeless people is unique and stu
 Jimmy Nelsson is well-known for his portraits of tribal and indigenous people taken in more than 16 countries. His photos will live to tell the tale. Nelsson’s book is now a collector’s item.
 
 ## 4. Rehahn
+![Branching](kgjfgj.jpg)
+
+Rehahn is specially focused on photographing Vietnam, Rajasthan and Cuba. He is famous for catching the soul of his subjects. Rehahn is undoubtedly one of the best portrait photographers in the world.
+
+## 5. Eric Lafforgue
 ![Branching]
