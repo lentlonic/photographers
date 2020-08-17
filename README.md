@@ -25,4 +25,6 @@ Jimmy Nelsson is well-known for his portraits of tribal and indigenous people ta
 Rehahn is specially focused on photographing Vietnam, Rajasthan and Cuba. He is famous for catching the soul of his subjects. Rehahn is undoubtedly one of the best portrait photographers in the world.
 
 ## 5. Eric Lafforgue
-![Branching]
+![Branching](ghghsd.jpg)
+
+Famous for his photos taken in North Korea, Eric Lafforgue has a story for each person he has photographed. From the tribes of Namibia to the Yezedis of Kurdistan, his tales are fascinating and his photos depict some real emotions.
