@@ -5,4 +5,9 @@ There’s something amazing about a good portrait photo – the stunning feature
 The best photographers that we’ve chosen for list have taken their portraits around the world without the help of a studio environment. The portrait photography, in this case, seems even more honest and candid, compared to staged pictures, as some of these people might be photographed for the first time in their life. The subjects of these pictures are indigenous people of small tribes from all around the globe and represent a photography branch of travel portraits. This kind of portrait photography is usually done during a trip abroad, documenting the unprivileged and real life, often highlighting the inequalities and social issues.
 
 ## 1. Steve McCurry
-![Branching](
+![Branching](hhdhdh.jpg)
+
+Steve McCurry is famous for his photo ‘Afghan girl,’ taken in a refugee camp in Peshawar, Pakistan. This photo was named the most recognized photo of National Geographic. His other less famous photos are really worth a look!
+
+## 2. Lee Jeffries
+![Branching]
